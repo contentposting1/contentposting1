@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @contentposting1
+- 👀 I’m interested in writing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on ...??
+- 📫 How to reach me ...No way
